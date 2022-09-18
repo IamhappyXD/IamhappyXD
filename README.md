@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [resume link](resume link)
 
-- ⚡ Fun fact **Keen to 🔭 Astronomy**
+- ⚡ Fun fact **Like studying 🔭 space**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
